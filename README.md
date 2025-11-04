@@ -1,1 +1,1 @@
-# 2025kr1
+https://slothnj.github.io/2025kr1/
